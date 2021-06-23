@@ -1,2 +1,2 @@
 # danba-
-tyt prohodit wleks pod bombardirowky
+tyt prohodit fleks pod bombardirowky
